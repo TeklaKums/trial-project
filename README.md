@@ -5,4 +5,6 @@ Our presentation is about Video games and Male Gaze
 
 
 - [x] all tasks
-♊ 
+
+
+My zodiac sign  ♊ 

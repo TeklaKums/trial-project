@@ -1,8 +1,9 @@
 ### trial-project
-# Acnaaaa?
+# Acknaaaa?
 # Im going to pisss **✌️**
 # You can come to me 
 # coke
+# Where was youuuu ?
 
 Our presentation is about Video games and Male Gaze
 
